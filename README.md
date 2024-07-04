@@ -9,7 +9,7 @@
 - I'm interested in collaborating with businesses, organizations, and individuals to leverage data analytics and drive success, by solving complex problems.
 - I'm eager to secure an entry-level Data Analyst position, where I can utilize my skills and continue to learn and grow in the field.
 - Ask me about anything on Data and i will respond immediately.
-- How to reach me: [linkedin]
+- How to reach me: *linkedin*
   (https://www.linkedin.com/in/titusemmanueladebayo)
 - Pronoun: He
 
